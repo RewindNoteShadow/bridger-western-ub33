@@ -1,4 +1,4 @@
-
+bridger western Scripts smart is the best bridger western Script, featuring aimbot and teleport. Safe and powerful for all your needs.
 
 
 
